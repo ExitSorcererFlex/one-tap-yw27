@@ -1,4 +1,4 @@
-
+one tap Scripts stealth offers the most advanced one tap Script, with invisibility and auto-upgrade. Perfect for dominating any match.
 
 
 
